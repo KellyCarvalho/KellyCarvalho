@@ -7,6 +7,6 @@ Pretento seguir carreira como back-end com a linguagem Java, mas gosto de aprend
 Além disso amo pintar o cabelo de cores fantasia como   rosa, roxo, azul e verde, gosto de ouvir The Warning, Metallica, Evanescence, alguns artistas do MPB, e algumas músicas clássicas da disney, geralmente estudo ouvindo melody of tears de Beethoven, me ajuda na concentração. Gosto de patinar, andar de bicicleta e cantar(quando não tem ninguém olhando claro :smile:). 
 Amo gatos, tenho 3, 2 adotei e 1  me adotou  :heart_eyes_cat: :heart_eyes_cat: :heart_eyes_cat: e minha cor favorita é roxo  :purple_heart:
 
-##### Este é o meu Linkedin e Insta pode me adicionar 
+##### Este é o meu Linkedin  pode me adicionar 
 [LinkedIn](https://www.linkedin.com/in/kelly-carvalho-110a59153/)
-[Instagram](https://www.instagram.com/kellycarvalho1998/)
+
