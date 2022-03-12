@@ -3,7 +3,7 @@
 
 - 🌱 I’m currently learning **node.js and Angular**
 - Java EE  is my favorite platform
-- 📫 How to reach me **kelly.ncarvalho@outlool.com**
+- 📫 How to reach me **kelly.ncarvalho@outlook.com**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
