@@ -1,5 +1,5 @@
 <h1 align="center">Hi 👋, I'm Kelly Carvalho</h1>
-<h3 align="center">A developer developer from Brazil</h3>
+<h3 align="center">A backend developer from Brazil</h3>
 
 - 🌱 I’m currently learning **node.js and Angular**
 - Java EE  is my favorite platform
